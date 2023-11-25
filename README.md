@@ -1,5 +1,5 @@
 # 💫 About Me:
-🖥️ I LIKE JAVASCRIPT<br>👨🏻 16 yo<br>Gaming, Programming, Studying
+🖥️ I LIKE JAVASCRIPT<br>👨🏻 high school student <br>Gaming, Programming, Studying, Modeling, Texturering
 
 
 ## 🌐 Socials:
